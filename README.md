@@ -1,0 +1,7 @@
+- Hi, I'm @k1rcocichka
+- 👀 I 'm interested in a bit of programming
+- 🌱 I am currently learning Python
+- 💞️ I am ready to cooperate with everyone
+- 📫 How to contact me by mail -> 123amogus@gmail.com
+- 😄 Pronouns: he, him, him
+- ⚡️ Interesting fact: I love chocolate
